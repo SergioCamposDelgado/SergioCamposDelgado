@@ -1,0 +1,5 @@
+- Soy Sergio Campos Delgado (scamdel0212)
+- Soy de Camas (Sevilla)
+- Eleji DAW debido a que me gusta la informatica y me gustaria trabajas lo antes posible
+- Espero desarrollar las habilidades necesarias para trabajar en el sector
+- 📫 How to reach me ...
